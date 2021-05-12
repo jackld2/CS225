@@ -1,0 +1,1 @@
+With a heavy heart you climb into Elon's spaceship knowing that you will have to miss the rest of CS 225. As you prepare for the journey to Mars, you look at the campus one last time think about all of the Mattox Monday jokes you will miss. The moment is bittersweet.
